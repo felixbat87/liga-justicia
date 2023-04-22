@@ -1,2 +1,0 @@
-# Historia de Flash 
-“Dentro de una relación que ambas personas entiendan que no hay posesión. Que una relación es un acompañamiento desde la libertad del individuo en conjunto a la aspiración de una vida con el otro. Es un pacto que se da libremente entre dos personas. Cuando uno puede comprender que no hay posesividad y establecer relaciones con un criterio de libertad, ahí hay un punto de madurez”, dijo.
